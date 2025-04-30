@@ -1,2 +1,2 @@
 # queerzine
-Some zine making resources
+Some community zine making resources for the HSPH LGBTQIA+ Working Group.
