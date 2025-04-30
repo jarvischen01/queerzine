@@ -17,3 +17,26 @@ your zine below:
 Here is a link to QZAP (The Queer Zine Archive Project) if you want to browse for
 some inspiration!
 [https://archive.qzap.org/](https://archive.qzap.org/)
+
+
+## Questions for Discussion
+
+Connect with someone in the room today and discuss one or more of these questions:
+
+* What is community to you?
+
+* How do we lean in to community in uncertain times?
+
+* What feelings are evoked when we think about leaning in to community?
+
+* How do we resist?
+
+* What does resistance mean?
+
+* How do we thrive?
+
+* What does thriving mean?
+
+Key themes: community, resistance, thriving, celebration 
+    
+
