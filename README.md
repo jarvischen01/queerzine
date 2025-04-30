@@ -13,3 +13,7 @@ You can also see some easy-to-follow directions for laying out, cutting, and fol
 your zine below:
 
 ![directions](queerzine_directions.png)
+
+Here is a link to QZAP (The Queer Zine Archive Project) if you want to browse for
+some inspiration!
+[https://archive.qzap.org/](https://archive.qzap.org/)
